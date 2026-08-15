@@ -1,4 +1,4 @@
-# Album 80 - Voice of Wisdom: Songs from the Proverbs ( ஞானத்தின் குரல் : நீதிமொழிகளில் இருந்து பாடல்கள்)
+# Album 80 - Voice of Wisdom: Songs from the Proverbs (ஞானத்தின் குரல் : நீதிமொழிகளில் இருந்து பாடல்கள்)
 
 Album 80 is a 7-song collection drawn from the Book of Proverbs. These anointed Tamil worship songs call the remnant to seek true wisdom, fear the Lord, receive instruction, turn from the path of the wicked, and walk in the ways of righteousness. Every song points beyond Solomon to the One greater than Solomon — the Lord Jesus Christ, the Wisdom of God. Offered freely for the remnant. All glory to Jesus Christ alone!
 
