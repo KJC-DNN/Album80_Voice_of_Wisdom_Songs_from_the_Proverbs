@@ -34,5 +34,8 @@ Do Not Forget My Teaching
 
 Blessed Is the One Who Finds Wisdom
 
+### Study note:
+These songs are rooted in Proverbs 1–3 and related passages. Solomon, son of David, wrote the Proverbs to give wisdom, instruction, understanding, justice, and discretion. Yet Jesus declared, “A greater than Solomon is here” (Matthew 12:42). He is the Wisdom of God (1 Corinthians 1:24, 30) in whom are hidden all the treasures of wisdom and knowledge (Colossians 2:3). The fear of the Lord is the beginning of wisdom; rejecting His call leads to destruction, while those who find Wisdom find life, honour, and peace. These songs are a call to the remnant to hear Wisdom’s voice and walk in her ways until the day we see the greater Solomon face to face.
+
 ### Prayer
 Lord Jesus Christ, You are the true Wisdom of God, greater than Solomon. Open our ears to Your instruction. Write Your commands upon our hearts. Deliver us from the path of the wicked and the strange woman. Let Your wisdom enter our hearts and guard our steps. Teach us to fear You, trust You with all our heart, and honour You with the firstfruits. Make us trees of life that bear fruit forever. Come quickly, Lord Jesus. Amen. Hallelujah!
